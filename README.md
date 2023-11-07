@@ -1,5 +1,6 @@
  
-                                                 INAUGURAÇÂO*Coffe Studio Ghibli*
+                                                 INAUGURAÇÃO
+                                          **Coffe Studio Ghibli**
                                                
                                               Data: 10 de Novembro
                                                 Horário: 10:30🕦
